@@ -1,0 +1,2 @@
+# tugas.krisna
+nugas disek
